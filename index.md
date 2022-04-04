@@ -1,5 +1,3 @@
-  Jibril Muhudin Resume
-
 Jibril Muhudin
 ==============
 
