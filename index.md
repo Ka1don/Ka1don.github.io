@@ -23,7 +23,7 @@ John Marshall Rochester, MN
 
 High School Diploma (Jun 2021)
 
-Soft Skils
+Skills
 ==========
 
 Problem Solving  
